@@ -2,9 +2,9 @@
 
 رابط التواصل
 
-[https://t.me/kvhvhvh](url)
+https://t.me/kvhvhvh
 
 رقم الهاتف 
 +9647887276016
 
-![13](https://cdn.jsdelivr.net/gh/krory2/k@main/2.mp4)
+![كروري فالفيردي🌟](https://cdn.jsdelivr.net/gh/krory2/k@main/1.png)
