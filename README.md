@@ -7,7 +7,7 @@ https://raw.githubusercontent.com/krory2/k/refs/heads/main/1.png
 1.png
 2.png
 3.png
-. . . . . 51.png
+. . .. 51.png
 
 
 
